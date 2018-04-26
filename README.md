@@ -7,3 +7,4 @@ ZCZC W04 telah dikerjakan
 ZCZC W05 telah dikerjakan
 ZCZC W06 done
 ZCZC W07 telah dikerjakan
+ZCZC W08 telah dikerjakan
